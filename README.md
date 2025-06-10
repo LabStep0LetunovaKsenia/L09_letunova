@@ -1,2 +1,2 @@
 # L09_letunova
-https://docs.google.com/presentation/d/1sHL-dcHwHt1uQlD-PvEWrE0a0vf_hjkXlqYCZi5I3Dg/edit?usp=sharing
+https://docs.google.com/presentation/d/1gDxDOeZhik_UA5w6dBJdz5-GXngl8-d4RhBJg3kKzb0/edit?usp=sharing
